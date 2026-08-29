@@ -2,7 +2,7 @@
 
 ### 💻 CSE Student | 🤖 AI/ML Enthusiast | 🚀 Software Developer
 
-📍 India • Artificial Intelligence • Software Development
+📍 Pune • Artificial Intelligence • Software Development
 
 ---
 
